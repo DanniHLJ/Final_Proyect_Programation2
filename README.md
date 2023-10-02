@@ -2,7 +2,7 @@
 
 Proyecto final de Programación 2 / THE GOOD BOG HOSTAL PET
 --------------------------------------------------------
-##Integrantes de grupo 
+Integrantes de grupo 
 -Daniel Alejandro González Juárez / 1290-22-4469
 -Diego Jose Flores Catavi / 1290-22-8865
 -David Emanuel Castellanos Velásquez/ 1290-22-6426

@@ -10,6 +10,7 @@ Integrantes de grupo
 ---------------------------------------------------------
 
 THE GOOD BOY HOSTAL PET 🐶
+C:\Users\hljda\Downloads\LOGO WhatsApp.jpg
 
 Es un lugar en donde puedes alojar a tus compañeros y en donde recibirán toda la atención que necesitan cuando tu no puedas estar disponibles para ellos, contando con comida, alojamiento y su tiempo de recreación. También contamos con una tienda donde podrás encontrar todos los productos necesarios para cubrir la necesidad de tus mascotas ya sea: alimento, collares, shampoo, etc. y Actualmente con nuestro nuevo servicio de grooming tus mascotas se verán mucho mas lindas.
 

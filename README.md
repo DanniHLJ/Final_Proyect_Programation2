@@ -9,6 +9,8 @@
 
 -------------------------------------------------------
 **THE GOOD BOT HOSTAL PET**
+-------------------------------------------------------
+
 ![LOGO WhatsApp](https://github.com/DanniHLJ/Final_Proyect_Programation2/assets/125110175/3d456f82-1a6b-445b-9338-3203ab8f4524)
 
 

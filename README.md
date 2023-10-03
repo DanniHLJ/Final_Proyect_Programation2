@@ -15,9 +15,12 @@
 
 
 
-Es un lugar en donde puedes alojar a tus compañeros y en donde recibirán toda la atención que necesitan cuando tu no puedas estar disponibles para ellos, contando con comida, alojamiento y su tiempo de recreación. También contamos con una tienda donde podrás encontrar todos los productos necesarios para cubrir la necesidad de tus mascotas ya sea: alimento, collares, shampoo, etc. y Actualmente con nuestro nuevo servicio de grooming tus mascotas se verán mucho mas lindas.
+Es un lugar en donde puedes alojar a tus compañeros y en donde recibirán toda la atención que necesitan cuando tu no puedas estar disponible !!
 
-También contamos con nuestra veterinaria que será la responsable de cualquier problema que puedan tener sus mascotas mientras estén bajo nuestro cuidado, lo resolveremos con todo el placer del mundo 🐕‍🦺🐈
+Contamos con un área específicamente para su alojamiento, comida y su recreación, asímimsmo contamos con una tienda en donde podrás optar por nuestros productos para cubrir todas y cada una de las necesidedes de tu compañero. 
+Actualmente implementamos los servicios de grooming y así conseguir un estio mas único en tus mascotas 🐶
+
+También contamos con un servicio de Veterinario, el cual se encargará de revisar y darle el cuidado necesario en dado caso lo necesite tu mejor amigo 🐕‍🦺🐈
 
 
 ---------------------------------------------------------

@@ -1,10 +1,10 @@
 **Final_Proyect_Programation2**
 
 **Integrantes de grupo** 
--Daniel Alejandro González Juárez / 1290-22-4469
--Diego Jose Flores Catavi / 1290-22-8865
--David Emanuel Castellanos Velásquez/ 1290-22-6426
--Juan Esteban Can López / 1290-22-1037
+* Daniel Alejandro González Juárez / 1290-22-4469
+* Diego Jose Flores Catavi / 1290-22-8865
+* David Emanuel Castellanos Velásquez/ 1290-22-6426
+* Juan Esteban Can López / 1290-22-1037
 
 
 -------------------------------------------------------

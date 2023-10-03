@@ -8,7 +8,7 @@
 
 
 -------------------------------------------------------
-* The Good boy Hostal Pet 
+* The Good Boy Hostal Pet 
 -------------------------------------------------------
 
 ![Logo](https://github.com/DanniHLJ/Final_Proyect_Programation2/assets/125110175/98740830-af19-40d0-85dc-d0e8c40c7c76)
